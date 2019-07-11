@@ -1,1 +1,1 @@
-# mjc-Freelance-Architectural Technician
+# mjc-Freelance-Architectural-Technician
